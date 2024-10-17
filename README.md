@@ -21,4 +21,4 @@ I’m always open to learning new things and collaborating on projects. Let’s 
 📫 Get in Touch
 - LinkedIn: [Click here](https://www.linkedin.com/in/sayali-more-b100bb24b/)
 - GitHub: [Click here](https://github.com/SayMore08/)
-- Email: sayalimore652@gmail.com
+- Email: moresayali652@gmail.com
